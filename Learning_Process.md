@@ -1,4 +1,4 @@
-# Learnign Process
+# Learning Process
 ## Question 1 What is the Feynman Technique? Explain in 1 line.
 ### Answer
 The Feynman Technique is a method for studying and retaining concepts by teaching them to others as if you are explaining to a child.
