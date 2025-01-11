@@ -15,5 +15,24 @@
 * **Reinforcement:** The group solidifies around and supports the final decision
 ### Question3 What are the obstacles in your listening process?
 ### Answer 
+* Interrupt speaker by self thoughts.
+* Using phone while taking to someone.
+* Not focusing on what speaker is saying or topic.
 ### Question4 What can you do to improve your listening?
 ### Answer
+* Try not to interrupt speaker and focus on what they speaking carefully with interest.
+* Using phrase or asking questions on the topic.
+* Using my body language and making notes.
+### Question5 When do you switch to Passive communication style in your day to day life?
+### Answer
+1. when don't have strong opinon.
+2. want to avoid conflict or topic.
+3. To be polite or feeling nervous.
+### Question6 When do you switch into Aggressive communication styles in your day to day life?
+1. When we are angry or furstated.
+2. Getting irritated
+3. Want to show some dominance.
+### Question7 When do you switch into Passive Aggressive (sarcasm/gossiping/taunts/silent treatment and others) communication styles in your day to day life?
+1. When irritated or furstated with someone.
+2. When don't want to show anger directly or making fun.
+3. To avoid fight.
