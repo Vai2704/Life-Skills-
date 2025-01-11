@@ -36,3 +36,8 @@
 1. When irritated or furstated with someone.
 2. When don't want to show anger directly or making fun.
 3. To avoid fight.
+### Question8 How can you make your communication assertive? You can watch and analyse the videos, then think what would be a few steps you can apply in your own life? (Watch the videos first before answering this question.)
+### Answer
+* Maintain your body language and stay calm.
+* Make your point clear.
+* Stay confident and respectful.
